@@ -12,6 +12,7 @@ no set dni but i'll block freely
 
 right so I dunno what to put herew bywbye
 ‎ 
-‎ 
-‎ 
+
+
+r
 ![the](HGw0BfRaoAEdaZu.jpeg)
