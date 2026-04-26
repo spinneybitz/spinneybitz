@@ -8,7 +8,7 @@ I like pokemon and phighting and other stuff
 
 I LOVE BIOGRAFT
 
-no set dni but i'll block freely
+no set dni but i'll block/hide freely
 
 right so I dunno what to put herew bywbye
 
